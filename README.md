@@ -5,4 +5,4 @@
 
 📬 **Contact**  
 Email: tinaarezoomanian@gmail.com  
-LinkedIn: https://www.linkedin.com/in/tinaarezoomanians/
+LinkedIn: https://www.linkedin.com/in/tina-arezoomanians/
