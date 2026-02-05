@@ -1,6 +1,8 @@
-Hi, I’m Tina Arezoomanians
+**Hi, I’m Tina Arezoomanians**
 
-Computer Science @ Cal Poly Pomona  
-Interested in data science  
+🎓 **Computer Science Senior @ Cal Poly Pomona (’26)**  
+💻 **Interested in Data Science**
 
-📬 tinaarezoomanian@gmail.com
+📬 **Contact**  
+Email: tinaarezoomanian@gmail.com  
+LinkedIn: https://www.linkedin.com/in/tinaarezoomanians/
